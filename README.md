@@ -1,0 +1,1 @@
+# AI-do-remnt-w-lokali-w-asne-narz-dzia-i-tynki-smart-home
